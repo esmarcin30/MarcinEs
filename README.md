@@ -1,2 +1,0 @@
-# MarcinEs
-Repo about me
